@@ -4,4 +4,4 @@
 
 - BBBBBRRRRWWWWAAAHHAH SSSTTUUU TTTUUU
 
-- []()
+! [](https://tenor.com/bZ4yw.gif)
